@@ -14,3 +14,4 @@ Here is now to find the mute section
 - `what is stopping you from`
 - `rate my`
 - `I am looking to connect`
+- `let's connect`
