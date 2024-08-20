@@ -8,7 +8,9 @@ Here is now to find the mute section
 
 ![How to](https://github.com/user-attachments/assets/28c4a4fb-9914-48a2-b9f1-fae21526f862)
 
-## List
+## List of suggestions
+
+### General
 
 - `as a developer`
 - `rate my`
