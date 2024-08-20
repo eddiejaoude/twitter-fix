@@ -11,7 +11,18 @@ Here is now to find the mute section
 ## List
 
 - `as a developer`
-- `what is stopping you from`
 - `rate my`
+- `wrong answers only`
+
+### What is stopping you from
+
+- `what is stopping you from`
+- `What's stopping u`
+- `What's stopping you from`
+- `What exactly preventing you from`
+- `what stops you from`
+
+### Let's connect
+
 - `I am looking to connect`
 - `let's connect`
